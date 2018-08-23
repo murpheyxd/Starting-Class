@@ -1,0 +1,1 @@
+Ada Lovelace, in one word, can be described as a genius. She predicted technological advances that would happen after a whole century passed when she died. She corresponded with the "Father Of Computers", and actually helped with her own calculations. But, of course, she had to die at a young age. 
